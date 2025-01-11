@@ -11,7 +11,7 @@ Microsoft Excel, Internet-based Research Platforms, Industry Reports
 February 24, 2024
 
 ## Company Industry
-Management Consulting and Professional Training
+Research Institute
 
 ## Company Name
 The KPI Institute
